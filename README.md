@@ -45,6 +45,7 @@ Includes insights on:
 ## 🏆 Internship Certificate
 
 Official certificate issued by **IPSR Solutions Ltd** is included.
+![Internship Certificate](~certificate/WhatsApp%20Image%202025-11-16%20at%2012.44.59_2ef909ad.jpg)
 
 ---
 
